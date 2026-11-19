@@ -69,7 +69,7 @@ Authentication & Authorization, Webhooks
 ### 🤝 Connect With Me
 
 -   GitHub: [@ymanoj0231](https://github.com/ymanoj0231)
--   LinkedIn: [Add your LinkedIn profile](https://www.linkedin.com/)
+-   LinkedIn: [Add your LinkedIn profile](https://www.linkedin.com/in/manoj-kumar-yanamala-407b51226)
 
 ------------------------------------------------------------------------
 
